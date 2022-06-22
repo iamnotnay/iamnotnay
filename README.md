@@ -1,5 +1,4 @@
--👋 Oi, eu sou a @iamnotnay
--👀 eu me interesso por moda, e livros
--🌱 estou estudando... 
--💞 estou procurando colaborar em...
--📫 você pode me encontrar em nayaradungersleber@gmail.com
+oi eu sou @iamnotnay
+eu me interesso por livros, moda, musicas etc..
+estou aprendendo...
+voce pode me encontar em nayara.farias.sousa@escola.pr.gov.br
